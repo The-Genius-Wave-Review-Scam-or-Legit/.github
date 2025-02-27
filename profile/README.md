@@ -1,5 +1,5 @@
 # The Genius Wave Review: Scam or Brain-Boosting Breakthrough?
-
+![The Genius Wave Review](https://media.licdn.com/dms/image/v2/D4D12AQEp95OcooqxbQ/article-inline_image-shrink_1000_1488/article-inline_image-shrink_1000_1488/0/1724519242327?e=1744848000&v=beta&t=ocI1qVEY0dv9MR_TEnh-D--5-VemytMhbaPGC1NDCU8)
 
 ## What is The Genius Wave?
 
