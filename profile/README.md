@@ -3,7 +3,7 @@
 
 ## What is The Genius Wave?
 
-The Genius Wave is a digital audio program designed to stimulate theta brainwaves, which are linked to relaxation, creativity, and learning. It claims to enhance cognitive abilities, reduce stress, and boost overall brain power through a 7-minute daily audio track. The product is marketed as being based on NASA research and developed by Dr. James Rivers, a purported MIT and NASA-trained neuroscientist.
+The Genius Wave is a digital audio program designed to stimulate theta brainwaves, which are linked to relaxation, creativity, and learning. It claims to enhance cognitive abilities, reduce stress, and boost overall brain power through a 7-minute daily audio track. The product is marketed as being based on NASA research and developed by Dr. James Rivers, a purported MIT and NASA-trained neuroscientist. <br>
 [>>Try The Genius Wave Today](https://gogeniuswave.com/DSvsl/#aff=KelexBawz)
 
 ## How Effective Is It?
