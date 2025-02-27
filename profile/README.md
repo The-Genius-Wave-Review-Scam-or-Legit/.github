@@ -1,16 +1,5 @@
 # The Genius Wave Review: Scam or Brain-Boosting Breakthrough?
 
-**Meta Description:** Explore The Genius Wave Review: Does this 7-minute audio really boost brain power? Uncover its claims, science, user feedback, and more as of Feb 27, 2025.
-
----
-
-## Key Points
-
-- The Genius Wave is likely a brainwave entrainment program claiming to enhance cognitive abilities with a 7-minute audio track, but its effectiveness is debated.
-- Research suggests it may help with relaxation and stress reduction, though evidence for significant cognitive boosts is limited.
-- User reviews are mixed, with some reporting benefits and others calling it a scam, especially due to refund issues and questionable creator credentials.
-- The creator, Dr. James Rivers, seems to lack independent verification, raising concerns about legitimacy.
-- An unexpected detail is the recurring charges reported by users, which may not be clearly disclosed initially.
 
 ## What is The Genius Wave?
 
@@ -126,18 +115,3 @@ The Genius Wave offers a potentially relaxing experience through brainwave entra
    Generally, brainwave entrainment is safe, but some may experience discomfort or no effects, with rare reports of seizures in susceptible individuals, as mentioned on [hapbee.com](https://www.hapbee.com/blogs/hapbee/everything-you-need-to-know-about-brainwave-entrainment).
 
 ---
-
-## Key Citations
-
-- [Comprehensive review of brainwave entrainment effects](https://www.ncbi.nlm.nih.gov/books/NBK75019/)
-- [The Genius Wave scam discussion on Reddit](https://www.reddit.com/r/Scams/comments/1agl79g/genius_wave_scam/)
-- [User reviews of The Genius Wave on Trustpilot](https://www.trustpilot.com/review/trygeniuswave.shop)
-- [Official Genius Wave website for product details](https://trygeniuswave.shop/)
-- [Science behind brainwave entrainment on Medium](https://medium.com/age-of-awareness/the-science-of-brainwave-entrainment-a303468dc2af)
-- [Brainwave entrainment explanation on Wikipedia](https://en.wikipedia.org/wiki/Brainwave_entrainment)
-- [Potential scam alert for The Genius Wave](https://malwaretips.com/blogs/the-genius-wave/)
-- [Dr. James Rivers official website claims](https://dr-james-rivers.com/)
-- [BrainTap science and benefits](https://braintap.com/the-science-behind-braintap-how-brainwave-entrainment-enhances-mental-health/)
-- [Safety concerns with brainwave entrainment](https://www.hapbee.com/blogs/hapbee/everything-you-need-to-know-about-brainwave-entrainment)
-- [Quora discussion on The Genius Wave](https://www.quora.com/What-is-the-Genius-Wave-review-Should-I-buy-it)
-- [Official Genius Wave pricing and claims](https://thegeniuswave.org/)
